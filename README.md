@@ -7,8 +7,6 @@
 
 - 🌱 I’m currently learning **Data Analysis**
 
-- 👨‍💻 LinkedIn Account [https://www.linkedin.com/in/annas-khalid-6687a6242?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app](https://www.linkedin.com/in/annas-khalid-6687a6242?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
-
 - 📫 How to reach me **annaskhalid709@gmail.com**
 
 - ⚡ Fun fact **Car Enthusiast**
